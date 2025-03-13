@@ -1,4 +1,4 @@
-- ⚡ Fun fact: Hi! Did you know my actual name is Mohammad?! and I'm into everything about computer!
+- ⚡ Fun fact: I'm a cat!
 
 <!---
 NASTEISHA1384/NASTEISHA1384 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
